@@ -1,1 +1,0 @@
-# kurumu-bo-az-m
